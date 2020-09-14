@@ -22,3 +22,5 @@ This guy ah got 69%
 You all better do your work tomorrow i punish ah, tomorrow:u all better do ur work the next day u all have to stand up (the next day) forgets abt everything she said yesterday
 (Google Meet) silence...Hello?
 We buy snacks for you not cheap hor Joel. Next time dont give you
+We play hooky go see snow...
+Every season is beautiful
